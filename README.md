@@ -21,7 +21,7 @@ The current homepage at [summitata.com](https://summitata.com) highlights:
 - ATA Tigers for ages 4–6
 - Karate for Kids for ages 7–12
 - Teens & Adults for ages 13+
-- Krav Maga
+- Gum Do
 - Melynda's story and the school's focus on confidence and personal development
 - Trial-class offers, testimonials, phone, location, and social links
 
